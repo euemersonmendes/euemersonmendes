@@ -4,8 +4,6 @@ Olá pessoal! Sou o Emerson Mendes 👋
 
 Encontre-me por aqui 👩
 
-Linkedin Badge
-
 💻 Atuo como Gerente de Unidade de Negócios no Sebrae MA
 💻 Graduado em Administração Pública
 💻 Pós-graduando em Finanças, Investimentos e Banking
