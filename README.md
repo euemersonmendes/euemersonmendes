@@ -2,8 +2,6 @@ Olá pessoal! Sou o Emerson Mendes 👋
 
 💻 Administrador, Especialista em Finanças e Investimentos e graduando em Ciência de Dados - 🌎 Bacabal/MA
 
-Encontre-me por aqui 👩
-
 💻 Atuo como Gerente de Unidade de Negócios no Sebrae MA
 💻 Graduado em Administração Pública
 💻 Pós-graduando em Finanças, Investimentos e Banking
