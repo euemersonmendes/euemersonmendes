@@ -4,7 +4,7 @@ Olá pessoal! Sou o Emerson Mendes 👋
 
 💻 Atuo como Gerente de Unidade de Negócios no Sebrae MA
 💻 Graduado em Administração Pública
-💻 Pós-graduando em Finanças, Investimentos e Banking
+💻 Pós-graduado em Finanças, Investimentos e Banking
 🤖 MBA em Gestão Empresarial e em Gestão de Projetos
 💻 Pós-graduado em Empreendedorismo e Inovaçao
 💻 Pós-graduado em Educaçao Profissional e Tecnológica e em Docência do Ensino Superior
