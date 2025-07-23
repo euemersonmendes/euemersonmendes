@@ -8,8 +8,7 @@ Olá pessoal! Sou o Emerson Mendes 👋
 🤖 MBA em Gestão Empresarial e em Gestão de Projetos
 💻 Pós-graduado em Empreendedorismo e Inovaçao
 💻 Pós-graduado em Educaçao Profissional e Tecnológica e em Docência do Ensino Superior
-💻 Pós-graduando em Data Science
-💻 Graduando em Ciência de Dados
+💻 Graduando em Ciência de Dados com Ênfase em IA.
 
 Obrigado por sua visita! ## Hi there 👋
 ## Hi there 👋
