@@ -7,7 +7,8 @@ Olá pessoal! Sou o Emerson Mendes 👋
 💻 Pós-graduado em Finanças, Investimentos e Banking
 🤖 MBA em Gestão Empresarial e em Gestão de Projetos
 💻 Pós-graduado em Empreendedorismo e Inovaçao
-💻 Pós-graduado em Educaçao Profissional e Tecnológica e em Docência do Ensino Superior
+💻 Pós-graduado em Educaçao Profissional e Tecnológica
+💻 PÓS graduado em Docência do Ensino Superior
 💻 Graduando em Ciência de Dados com Ênfase em IA.
 
 Obrigado por sua visita! ## Hi there 👋
