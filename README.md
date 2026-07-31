@@ -10,6 +10,8 @@ Olá pessoal! Sou o Emerson Mendes 👋
 💻 Pós-graduado em Educaçao Profissional e Tecnológica
 💻 Pós-graduado em Docência do Ensino Superior
 💻 Graduando em Ciência de Dados com Ênfase em IA.
+💻 Pós-Graduando em Data Science.
+💻 Engenharia de IA.
 
 Obrigado por sua visita! ## Hi there 👋
 ## Hi there 👋
